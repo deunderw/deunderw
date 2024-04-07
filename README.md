@@ -1,4 +1,4 @@
-Jack of few trades and Master of none!
+Jack of few trades and Master of none! 🏴‍☠️
 
 <!--
 ### Hi there 👋
